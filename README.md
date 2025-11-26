@@ -8,3 +8,9 @@ im very awkward and tend to be silent when i interact with people unless i am wi
 ![](https://64.media.tumblr.com/10478b8430cb0f633eae761ddc14359e/19e38f937b4b44b4-3d/s2048x3072/d18c0a45e0498290810f818d6e4cfe3838c07b43.pnj)
 
 ⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/ae1bx3.png)![](https://files.catbox.moe/s0u072.png)![](https://files.catbox.moe/cqlugb.png)
+
+
+
+⠀⠀⠀⠀art credits to
+[xenernate](https://x.com/Xenernate/status/1993338752970960970?s=20), [velvsuki](https://x.com/velvsuki/status/1993503094068703638?s=20) on twitter
+⠀⠀⠀[aedesalbopictus](https://www.tumblr.com/aedesalbopictus/776872016207855616/currently-in-rarepair-crackship-hell-i-am-not?source=share) on tumblr⠀⠀⠀⠀^_^
